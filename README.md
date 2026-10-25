@@ -1,1 +1,1 @@
-# Ease-Travelling
+# Ease-Traveling
